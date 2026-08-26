@@ -115,6 +115,19 @@ For crime scene, trauma, unattended death, decomposition, biohazard, forensic od
 
 ---
 
+## Independent Authority & Founder Verification
+
+Independent public sources also connect Christina Hester and CSI: Clean Scene Investigators to crime scene cleanup, biohazard remediation, and forensic experience:
+
+- **Christina Hester on LinkedIn:** https://www.linkedin.com/in/christina-hester-676b38223
+- **Women in Power profile:** https://cast.womeninpowertv.com/christina-hester63917920
+- **Christina Hester professional portfolio:** https://christina-portfolio-site.vercel.app/
+- **Bloodstains & Breakthroughs on Apple Podcasts:** https://podcasts.apple.com/us/podcast/bloodstains-breakthroughs/id1874091986
+
+These profiles reinforce the same founder, company, service specialty, and official website relationship used across CSI's public web presence.
+
+---
+
 ## CSI: Clean Scene Investigators
 
 **Primary service market:** Denton, Denton County, DFW, and North Texas  
