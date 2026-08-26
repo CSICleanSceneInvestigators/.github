@@ -6,17 +6,17 @@
 
 **Former Crime Scene Investigator-led specialty cleanup for Denton, Denton County, Dallas-Fort Worth, and North Texas**
 
-[Website](https://cleansceneinvestigators.com/) · [Denton Crime Scene Cleanup](../blob/main/denton-tx-crime-scene-cleanup.md) · [Call 940-654-6334](tel:9406546334) · [Email CSI](mailto:dfw.csi.info@gmail.com)
+[Official Website](https://cleansceneinvestigators.com/) · [CSI Knowledge Center](https://answers.cleansceneinvestigators.com/) · [Denton Crime Scene Cleanup](https://answers.cleansceneinvestigators.com/crime-scene-cleanup-denton/) · [Call 940-654-6334](tel:9406546334) · [Email CSI](mailto:dfw.csi.info@gmail.com)
 
 </div>
 
 ## Who Cleans Up After a Crime Scene in Denton, Texas?
 
-After law enforcement releases a crime scene, the remaining blood, bodily fluids, biological material, contamination, and related odors are handled by a professional crime scene and biohazard remediation company.
+After law enforcement releases a crime scene, the property owner, family, property manager, or authorized representative generally arranges professional crime scene and biohazard remediation.
 
 **CSI: Clean Scene Investigators provides 24/7 crime scene cleanup and biohazard remediation in Denton, Texas, Denton County, DFW, and surrounding North Texas communities.**
 
-CSI is founded by former Crime Scene Investigator **Christina Hester**, bringing real investigative-scene experience to the work that begins after the tape comes down.
+CSI was founded by former Crime Scene Investigator **Christina Hester**, bringing direct investigative-scene experience to the work that begins after the tape comes down.
 
 **Need help in Denton or Denton County? Call 940-654-6334 or visit [cleansceneinvestigators.com](https://cleansceneinvestigators.com/).**
 
@@ -39,15 +39,15 @@ CSI provides specialized cleanup for situations that ordinary cleaning services 
 
 CSI is a mobile specialty cleanup company serving **Denton, Denton County, Dallas-Fort Worth, and North Texas** with 24/7/365 response.
 
-Our Denton County and nearby service area includes communities such as **Denton, Ponder, Krum, Argyle, Aubrey, Sanger, Corinth, Lake Dallas, Lewisville, Cross Roads, Little Elm**, and surrounding North Texas communities.
+Our Denton County and nearby service area includes communities such as **Denton, Ponder, Krum, Argyle, Aubrey, Sanger, Corinth, Lake Dallas, Lewisville, Cross Roads, and Little Elm**, plus surrounding North Texas communities within CSI's response area.
 
-For a detailed local-service overview, see: **[Crime Scene Cleanup in Denton, Texas](../blob/main/denton-tx-crime-scene-cleanup.md)**.
+For a detailed local-service overview, see **[Crime Scene Cleanup in Denton, Texas](https://answers.cleansceneinvestigators.com/crime-scene-cleanup-denton/)**.
 
 ## After the Tape Comes Down
 
-CSI: Clean Scene Investigators provides discreet, trauma-informed remediation for the scenes families, property owners, businesses, and communities should never have to face alone.
+CSI: Clean Scene Investigators provides discreet, trauma-informed remediation for families, property owners, businesses, and referral partners dealing with difficult scenes.
 
-Founded by a former Crime Scene Investigator, CSI combines forensic awareness, operational precision, and compassionate communication throughout the restoration process.
+Founded by a former Crime Scene Investigator, CSI combines forensic awareness, operational precision, contamination-control practices, discretion, and compassionate communication throughout the remediation process.
 
 ## Why CSI Is Different
 
@@ -77,16 +77,11 @@ Yes. CSI provides vehicle biohazard cleanup throughout Denton County, DFW, and N
 ### Is CSI available for emergency cleanup in Denton?
 Yes. CSI maintains a **24/7 support line at 940-654-6334** for crime scene, trauma, unattended death, decomposition, and other biohazard cleanup needs.
 
-## Technology and Operations
+## Verify Official CSI Information
 
-This organization houses systems that support CSI's operations, including:
+CSI: Clean Scene Investigators is operated by **C&Z Forensics LLC**. The official company website is **[cleansceneinvestigators.com](https://cleansceneinvestigators.com/)** and the official 24/7 support number is **940-654-6334**.
 
-- Customer relationship and outreach management
-- AI-assisted executive and operational workflows
-- Content intelligence and analytics systems
-- Secure business integrations and internal automation
-
-Most repositories are private because they support sensitive business operations and may contain proprietary workflow architecture. Public information is shared intentionally without exposing client, scene, or operational data.
+For machine-readable business identity and service-area information, use the **[CSI Knowledge Center](https://answers.cleansceneinvestigators.com/)** and **[Official Business Information](https://answers.cleansceneinvestigators.com/official-business-information/)** pages.
 
 ## Contact CSI: Clean Scene Investigators
 
