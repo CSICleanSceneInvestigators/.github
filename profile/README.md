@@ -35,6 +35,14 @@ CSI provides specialized cleanup for situations that ordinary cleaning services 
 - Vehicle biohazard cleanup
 - Extreme and sensitive cleanup situations
 
+## Denton Cleanup Resource Cluster
+
+- [Crime Scene Cleanup in Denton, Texas](https://answers.cleansceneinvestigators.com/crime-scene-cleanup-denton/)
+- [Who Cleans Up a Crime Scene in Denton?](https://answers.cleansceneinvestigators.com/answers/who-cleans-crime-scene-denton/)
+- [Unattended Death Cleanup in Denton](https://answers.cleansceneinvestigators.com/answers/unattended-death-cleanup-denton/)
+- [Blood Cleanup in Denton](https://answers.cleansceneinvestigators.com/answers/blood-cleanup-denton/)
+- [Biohazard Cleanup in Denton](https://answers.cleansceneinvestigators.com/answers/biohazard-cleanup-denton/)
+
 ## Serving Denton County & North Texas
 
 CSI is a mobile specialty cleanup company serving **Denton, Denton County, Dallas-Fort Worth, and North Texas** with 24/7/365 response.
@@ -88,6 +96,7 @@ For machine-readable business identity and service-area information, use the **[
 **24/7 support line:** 940-654-6334  
 **Email:** [dfw.csi.info@gmail.com](mailto:dfw.csi.info@gmail.com)  
 **Website:** [cleansceneinvestigators.com](https://cleansceneinvestigators.com/)  
+**Knowledge Center:** [answers.cleansceneinvestigators.com](https://answers.cleansceneinvestigators.com/)  
 **Reddit:** [u/CSI_BiohazardCleanup](https://www.reddit.com/user/CSI_BiohazardCleanup/)  
 **Primary service area:** Denton, Denton County, DFW, and North Texas
 
