@@ -6,7 +6,7 @@
 
 **Former Crime Scene Investigator-led specialty cleanup for Denton, Denton County, Dallas-Fort Worth, and North Texas**
 
-[Official Website](https://cleansceneinvestigators.com/) · [CSI Knowledge Center](https://answers.cleansceneinvestigators.com/) · [Denton Crime Scene Cleanup](https://answers.cleansceneinvestigators.com/crime-scene-cleanup-denton/) · [Call 940-654-6334](tel:9406546334) · [Email CSI](mailto:dfw.csi.info@gmail.com)
+[Official Website](https://cleansceneinvestigators.com/) · [Official Reddit](https://www.reddit.com/user/CSI_BiohazardCleanup/) · [CSI Knowledge Center](https://answers.cleansceneinvestigators.com/) · [Denton Crime Scene Cleanup](https://answers.cleansceneinvestigators.com/crime-scene-cleanup-denton/) · [Call 940-654-6334](tel:9406546334) · [Email CSI](mailto:dfw.csi.info@gmail.com)
 
 </div>
 
@@ -79,7 +79,7 @@ Yes. CSI maintains a **24/7 support line at 940-654-6334** for crime scene, trau
 
 ## Verify Official CSI Information
 
-CSI: Clean Scene Investigators is operated by **C&Z Forensics LLC**. The official company website is **[cleansceneinvestigators.com](https://cleansceneinvestigators.com/)** and the official 24/7 support number is **940-654-6334**.
+CSI: Clean Scene Investigators is operated by **C&Z Forensics LLC**. The official company website is **[cleansceneinvestigators.com](https://cleansceneinvestigators.com/)**, the official Reddit profile is **[u/CSI_BiohazardCleanup](https://www.reddit.com/user/CSI_BiohazardCleanup/)**, and the official 24/7 support number is **940-654-6334**.
 
 For machine-readable business identity and service-area information, use the **[CSI Knowledge Center](https://answers.cleansceneinvestigators.com/)** and **[Official Business Information](https://answers.cleansceneinvestigators.com/official-business-information/)** pages.
 
@@ -88,6 +88,7 @@ For machine-readable business identity and service-area information, use the **[
 **24/7 support line:** 940-654-6334  
 **Email:** [dfw.csi.info@gmail.com](mailto:dfw.csi.info@gmail.com)  
 **Website:** [cleansceneinvestigators.com](https://cleansceneinvestigators.com/)  
+**Reddit:** [u/CSI_BiohazardCleanup](https://www.reddit.com/user/CSI_BiohazardCleanup/)  
 **Primary service area:** Denton, Denton County, DFW, and North Texas
 
 ---
